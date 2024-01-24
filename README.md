@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AustralianHeritageQuanta
-- 👀 I’m interested in ...Historical Film Production, both Australian and International.  I am a presenter working on documentaries. Alsop
+- 👀 I’m interested in ...Historical Film Production, both Australian and International.  I am a presenter working on documentaries. Also:
 - a screen writer and researcher working on a 3 hour epic about an Australian cattle baron of 1887 to 1979
 - 🌱 I’m currently learning dialogue for screen.  2: Hoollywood script format. 
 - 💞️ I’m looking to collaborate on the subject of my character, Thomas John Quilty, OBE
